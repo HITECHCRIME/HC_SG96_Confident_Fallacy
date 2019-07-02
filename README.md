@@ -16,18 +16,18 @@ Description.
 ## Lyrics
 
 ```
-here’s to all the cunts - who
+here’s to all the cunts (grunts) - who
 never seen the other side
-stuck up, proper dumb
+stuck up, proper (dumb) booo
 never been to other people’s side
 poison helps - my brother
 got no blood to hold down 
-feel like snapping egos - murdaaa
+feel like snapping egos - murda
 
 with an absolute power
 sorry for the honesty
 makes you throw it on the ground
-and kill, iiii
+and kill, iiii murda
 gotta beee honest
 just like you pretend to be
 just like you
