@@ -16,7 +16,51 @@ Description.
 ## Lyrics
 
 ```
+here’s to all the cunts - who
+never seen the other side
+stuck up, proper dumb
+never been to other people’s side
+poison helps - my brother
+got no blood to hold down 
+feel like snapping egos - murdaaa
 
+with an absolute power
+sorry for the honesty
+makes you throw it on the ground
+and kill, iiii
+gotta beee honest
+just like you pretend to be
+just like you
+pretend to be
+aye
+
+all i require justice, slightly admitting
+to a fallacy, indeed, hurt 
+hurting deep yeah
+pruned and wanted to be called
+one-sided story for a collared dog
+for a collared dog
+
+
+ accurate assumptions
+sorry for the honesty
+
+now i’m gonna be honest
+
+
+with all my actually accurate assumptions
+
+- on the ground
+
+but i require justice just like admitting
+to fallacy, hurting deep 
+
+
+
+
+judgement is my domain
+
+here’s to all the cunts - fuck off
 
 ```
 
