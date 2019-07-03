@@ -18,7 +18,7 @@ Description.
 ```
 here’s to all the cunts (grunts) - who
 never seen the other side
-stuck up, proper (dumb) booo
+stuck up, proper (dumb) booo (done)
 never been to other people’s side
 poison helps - my brother
 got no blood to hold down 
@@ -27,7 +27,7 @@ feel like snapping egos - murda
 with an absolute power
 sorry for the honesty
 makes you throw it on the ground
-and kill, iiii murda
+and kill, iiii (murda)
 gotta beee honest
 just like you pretend to be
 just like you
@@ -35,7 +35,7 @@ pretend to be
 aye
 
 all i require justice, slightly admitting
-to a fallacy, indeed, hurt 
+to a fallacy, hurting deep (indeed)
 hurting deep yeah
 pruned and wanted to be called
 one-sided story for a collared dog
