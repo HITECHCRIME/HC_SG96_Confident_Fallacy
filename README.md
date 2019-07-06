@@ -16,12 +16,12 @@ Description.
 ## Lyrics
 
 ```
-here’s to all the cunts (grunts) - who
+here’s to all the grunts - who
 never seen the other side
-stuck up, proper (dumb) booo (done)
+stuck up, proper done
 never been to other people’s side
 poison helps - my brother
-got no blood to hold down 
+got no blood - none to hold down 
 feel like snapping egos - murda
 
 with an absolute power
