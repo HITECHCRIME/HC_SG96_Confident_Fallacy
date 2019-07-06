@@ -16,9 +16,9 @@ Description.
 ## Lyrics
 
 ```
-here’s to all the grunts - who
+here’s to all the grunts (cunts) - who
 never seen the other side
-stuck up, proper done
+stuck up, proper done (dumb) booo
 never been to other people’s side
 poison helps - my brother
 got no blood - none to hold down 
