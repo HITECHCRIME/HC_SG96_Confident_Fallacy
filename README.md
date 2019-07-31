@@ -55,7 +55,8 @@ with all my actually accurate assumptions
 but i require justice just like admitting
 to fallacy, hurting deep 
 
-
+what did you expect from a dog
+you fuck it up it will bite
 
 
 judgement is my domain
